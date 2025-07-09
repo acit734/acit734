@@ -9,7 +9,7 @@ My hobby is obvious, coding and gaming! Right now, I'm an active <span><img src=
 
 ---
 
-If you want be friend, he's my <span><img src="https://blog.logomyway.com/wp-content/uploads/2020/12/discord-mascot.png" style="height: 1rem"></span> Discord username!: <span style="color: blue"><ins>acit7703</ins></span>
+If you want be friend, here's my <span><img src="https://blog.logomyway.com/wp-content/uploads/2020/12/discord-mascot.png" style="height: 1rem"></span> Discord username! : <span style="color: blue"><ins>acit7703</ins></span>
 
 ---
 
